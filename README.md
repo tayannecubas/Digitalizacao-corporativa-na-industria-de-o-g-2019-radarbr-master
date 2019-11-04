@@ -1,1 +1,1 @@
-# Digitalizacao-corporativa-na-industria-de-o-g-2019-radarbr-master
+# Digitalizacao corporativa na industria de og 2019 radarbr
